@@ -1,1 +1,1 @@
-# USPTO Design System - Tools and Wireframe Resources
+# USPTO Design System - Visual Design and UX Assets
